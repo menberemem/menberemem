@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @menbere kassa from ethiopia adddis ababa
+- 👀 I’m interested in programing 
+- 🌱 I’m currently learning my masters in Computer science so i want your advice and help in python and html,css and java script 
+- 💞️ 
